@@ -1,11 +1,4 @@
-#  Pranav Reddy
-
-
-
-
-
-
-# MY STATS 😎
+# Statistics 😎
 
 
 
